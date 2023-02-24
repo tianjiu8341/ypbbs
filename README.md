@@ -8,6 +8,10 @@
 
 - https://ypbbs.top 一品楼社区论坛
 
+- https://ypbbs.gay 一品楼社区论坛
+
+- https://ypbbs.wtf 一品楼社区论坛
+
 - https://ypbbs.buzz 一品楼社区论坛
 
 - https://ypbbs.tk 一品楼社区论坛
